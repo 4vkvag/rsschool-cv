@@ -1,5 +1,5 @@
 ## Nikita Galchenko
-## Conatnt info
+## Contact info
 **Email:** iwinston1488@gmail.com
 **Discord^:** keks#9640
 **Location:** Russia,Saint Petersburg
